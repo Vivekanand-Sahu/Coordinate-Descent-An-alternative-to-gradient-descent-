@@ -17,4 +17,4 @@ I'm eager to hear your thoughts and insights! Let's engage in a discussion and e
 Drop your comments, or feel free to connect for a more in-depth conversation. Let's innovate together! 🚀🔍
 
 
-![Game Screenshot](https://your-image-url.com/image.png)
+![Game Screenshot](https://your-image-url.com/algorithm.jpeg)
